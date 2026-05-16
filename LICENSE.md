@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with professional Token Sniper for sandwich attack bot | multi-wallet-support & pump-detection, the #1 sandwich attack bot. Includes multi-wallet-support and
 
 
 
